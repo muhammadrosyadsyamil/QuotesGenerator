@@ -1,0 +1,7 @@
+-Quotes Islami
+-Quran Quotes/ Verse Quotes applikasi quran ku / umma
+-Motivational Quotes
+-Anime Quotes
+-Financial Quotes
+-Love Quotes
+-Business Quotes
